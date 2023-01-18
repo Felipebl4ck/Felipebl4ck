@@ -1,4 +1,4 @@
 - 👋 Olá, o meu nomeé Felipe
-- 👀 O meu e-mail de contato é:fa6765387@gmail.com
+- 👀 O meu e-mail de contato é:  felipealvescreator2023@gmail.com
 - 🌱 eu estou interessado em aprender a programarnovas linguagens
 - 💞️ eu estou aprendendo a programardor  web 
